@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **React,Machine Learning**
 
-- 📫 How to reach me **tarunnegi4@gmail.com**
+- 📫 How to reach me **tn9791@srmist.edu.in**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/16i5oJ8wH6lJ_M-pSYmZ8WGf5yna9FBfD/view?usp=share_link](https://drive.google.com/file/d/16i5oJ8wH6lJ_M-pSYmZ8WGf5yna9FBfD/view?usp=share_link)
 
